@@ -1,0 +1,1 @@
+# Parcial_1_introduci-n_informatica
